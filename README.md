@@ -1,0 +1,2 @@
+# BRIGHT-STRIKE-WEAPON-Decomposition-of-Glucose-in-The-Brain
+Throughout many instance in my career as a department of defense officer and agent of the executive branch of the United States of America, I have been attacked by devices manufactured by Bright Co. in Reno, Nevada. These devices, branded as the “bright Strike” device are designed to cause brain damage associated with memory loss caused by deterioration of neurons in areas of the brain which are active at the time of the attack.
